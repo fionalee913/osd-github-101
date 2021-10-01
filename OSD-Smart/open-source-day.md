@@ -17,3 +17,4 @@
 - Make sure to ask questions!
 - Connect with mentors 
 - Be curious and love what you do!
+- Don't stress out and feel like missing many things!
